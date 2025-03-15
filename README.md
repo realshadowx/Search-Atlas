@@ -4,7 +4,7 @@ Hello folks, Amir here.
 
 In this article, we’ll dive into the best [Search Atlas coupon codes](https://dashboard.searchatlas.com/register?fpr=shadow) currently available, giving you the chance to unlock exclusive discounts and special offers on your favorite products or services.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdQVrap3B2m3xhgm_r8XG1kArSFAhSJ0Yh69nlsMh4NhHBPlRGJyKGLy6Ga5fj87y54baAmhzfZ-h_15FN1PJbr1GKi-fkVOkO4zSeTaUmn_NG-AUwicMGpz00ZpclUlnksaWMDVg?key=BG5RfXf8Qac6DUXToy9eAwBf)](https://dashboard.searchatlas.com/register?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/88b8c0eb-2d12-4685-84c2-d71888abed82)](https://dashboard.searchatlas.com/register?fpr=shadow)
 
 ## Top Search Atlas Coupon Codes
 
@@ -14,33 +14,33 @@ Here’s a look at some of the best Search Atlas coupon codes you can use to sav
 
 * Discount Details: Save 20% off your first order with Search Atlas.
 * Applicable Products/Services: This code applies to your first purchase on the website, including subscriptions and services.
-* Expiry Date: Limited-time offer—expires on [insert date].
+* Expiry Date: Limited-time offer—expires on 23/12/2025.
 * How to Use: Enter CODE20 during checkout to apply the 20% discount.
 
 ### 2. SAVE50
 
 * Discount Details: Get 50% off select items site-wide.
 * Applicable Products/Services: This offer applies to select items, including premium services and higher-tier products.
-* Expiry Date: Offer expires on [insert date].
+* Expiry Date: Offer expires on 23/12/2025.
 * How to Use: Add eligible items to your cart and apply SAVE50 at checkout to get your discount.
 
 ### 3. FREESHIP
 
 * Discount Details: Enjoy free shipping on all orders over $50.
 * Applicable Products/Services: Free shipping is available on all orders when your cart total exceeds $50.
-* Expiry Date: Valid through [insert date].
+* Expiry Date: Valid through 23/12/2025.
 * How to Use: Simply apply FREESHIP during checkout when your order qualifies.
 
 ### 4. EXTRA10
 
 * Discount Details: Take an extra 10% off sale items.
 * Applicable Products/Services: This applies to sale items, so it’s a great way to maximize discounts on already reduced products.
-* Expiry Date: This code is available until [insert date].
+* Expiry Date: This code is available until 23/12/2025.
 * How to Use: Enter EXTRA10 during checkout to apply your extra 10% off.
 
 These are just a few of the fantastic deals available with Search Atlas right now. Make sure to act quickly—these offers won’t last forever!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdQVrap3B2m3xhgm_r8XG1kArSFAhSJ0Yh69nlsMh4NhHBPlRGJyKGLy6Ga5fj87y54baAmhzfZ-h_15FN1PJbr1GKi-fkVOkO4zSeTaUmn_NG-AUwicMGpz00ZpclUlnksaWMDVg?key=BG5RfXf8Qac6DUXToy9eAwBf)](https://dashboard.searchatlas.com/register?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/88b8c0eb-2d12-4685-84c2-d71888abed82)](https://dashboard.searchatlas.com/register?fpr=shadow)
 
 ## How to Redeem Your Search Atlas Coupon Code?
 
@@ -64,7 +64,7 @@ Once the code is applied, your discount will be reflected in the total. Double-c
 
 That’s it! In just a few simple steps, you’ll be saving money and enjoying your purchase.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdQVrap3B2m3xhgm_r8XG1kArSFAhSJ0Yh69nlsMh4NhHBPlRGJyKGLy6Ga5fj87y54baAmhzfZ-h_15FN1PJbr1GKi-fkVOkO4zSeTaUmn_NG-AUwicMGpz00ZpclUlnksaWMDVg?key=BG5RfXf8Qac6DUXToy9eAwBf)](https://dashboard.searchatlas.com/register?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/88b8c0eb-2d12-4685-84c2-d71888abed82)](https://dashboard.searchatlas.com/register?fpr=shadow)
 
 ## Pricing Information: How Much Can You Save?
 
@@ -79,7 +79,7 @@ Here’s a closer look at how much you can save with these amazing Search Atlas 
 
 With these savings, you can treat yourself to more of what you love while keeping your budget intact!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdQVrap3B2m3xhgm_r8XG1kArSFAhSJ0Yh69nlsMh4NhHBPlRGJyKGLy6Ga5fj87y54baAmhzfZ-h_15FN1PJbr1GKi-fkVOkO4zSeTaUmn_NG-AUwicMGpz00ZpclUlnksaWMDVg?key=BG5RfXf8Qac6DUXToy9eAwBf)](https://dashboard.searchatlas.com/register?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/88b8c0eb-2d12-4685-84c2-d71888abed82)](https://dashboard.searchatlas.com/register?fpr=shadow)
 
 ## About Search Atlas
 
